@@ -14,7 +14,7 @@ VRChat / PonyTown / Discord
 
 # Info .ᐟ
 
-You can call me Crytter or my pony name, they/them :D
+You can call me Crytter / Sherb / pony name / avi name                                     (If you know me IRL then obviously you can call me whatever name you use for me )
 
 interact with me first!
 
