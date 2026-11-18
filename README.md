@@ -11,47 +11,13 @@ VRChat / PonyTown / Discord
 
 🔴/🔴/🔴DND  .◞ DNI .◞ No replies. .
 
-
-# Info .ᐟ
-
-You can call me Crytter / Sherb / pony name / avi name                                     (If you know me IRL then obviously you can call me whatever name you use for me )
-
-interact with me first!
-
-### BYI .ᐟ
-
-I'm 19.
-
-frqs are 18+ on PT.
-
-always IWEC, i'm in a tough spot mentally right now so i may be iffy when interacting.
-
-Do NOT copy skins.
-
-### DNI .ᐟ
-
-Basic DNI. (Transphobic, Racsist, Abelist, Sexist, Homophobic)
-
-You use slurs you can't reclaim
-
-Agisnt neopronouns and/or xenoidentites
-
-Agianst Furrys/Therians/Otherkins/Kemomomimis
-
-˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
-
-Dream Supporters
-
-Vivziepop Supporters
-
-![](https://files.catbox.moe/sux45p.png) ![](https://files.catbox.moe/eoyrbq.png)
-
-![](https://64.media.tumblr.com/ca2cd12015c43c7d84cb49d3f63d9052/7d0978d27a1da6b8-a0/s1280x1920/3d90f9d5bac150037c6bd2e56837a3097dca2640.pnj)
-
 #
-### Buncha Boxes! :3
 
- ![](https://camo.githubusercontent.com/c55c67df1d58509d9d9d1bcdf19f628571e353b492637dc3badf074305a13764/68747470733a2f2f66696c652e67617264656e2f5a3054432d306d436767784765564c4f2f55736572626f7865732f5468697325323075736572253230757365732532306461726b2532306d6f64652532302e6a7067)
+! This GitHub is currently under construction !
+
+please bare with me ^ ^
+
+![](https://camo.githubusercontent.com/c55c67df1d58509d9d9d1bcdf19f628571e353b492637dc3badf074305a13764/68747470733a2f2f66696c652e67617264656e2f5a3054432d306d436767784765564c4f2f55736572626f7865732f5468697325323075736572253230757365732532306461726b2532306d6f64652532302e6a7067)
  ![](https://springylock.carrd.co/assets/images/gallery10/ff2979de.jpg?v=e91eaae0)
  ![](https://springylock.carrd.co/assets/images/gallery10/cac220a1.jpg?v=e91eaae0)
  ![](https://springylock.carrd.co/assets/images/gallery10/afc7a50c.jpg?v=e91eaae0)
