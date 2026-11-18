@@ -1,8 +1,11 @@
 ![](https://files.catbox.moe/92l9j0.png)
 ![](https://64.media.tumblr.com/ca2cd12015c43c7d84cb49d3f63d9052/7d0978d27a1da6b8-a0/s1280x1920/3d90f9d5bac150037c6bd2e56837a3097dca2640.pnj)
 ( 1/2/3 )
+
 1 is VRC
+
 2 is Ponytown
+
 3 is Discord
 
 # Interaction Status' .ᐟ
